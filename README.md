@@ -1,0 +1,2 @@
+# PLANOS
+ crecimiento exponencial
